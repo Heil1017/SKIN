@@ -7,6 +7,6 @@
 
 
 
-# [Heil andros](https://drive.google.com/file/d/1SrYwLS7-yghXmRwOpUD2uvkoE7PiPdVE/view?usp=sharing)
-![screenshot477](https://github.com/user-attachments/assets/b2c5de87-d4d1-4ebe-a0be-9ed9472b43ff)
+# [Heil andros](https://drive.google.com/file/d/1ox8Zl17ZHfcMJZJSieeThY0DXJXtk99b/view?usp=sharing)
+![screenshot479](https://github.com/user-attachments/assets/4b0ff143-a30c-4f72-9a00-8843c712ab0b)
 
